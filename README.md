@@ -1,1 +1,1 @@
-# Strategy-COnsulting-BCG
+# Strategy-Consulting-BCG
